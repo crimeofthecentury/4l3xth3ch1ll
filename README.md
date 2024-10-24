@@ -1,4 +1,6 @@
 **Welcome!!**
+- My name is alex
++ She/her
 <img
 src="https://i.ibb.co/fQkyXLF/Untitled120-20241023014232.png">
 </picture>
