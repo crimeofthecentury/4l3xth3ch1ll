@@ -1,6 +1,8 @@
-**Welcome!!**
-- My name is alex
-+ She/her
+**ᵂᵉˡᶜᵒᵐᵉ!!**
+- ᴹʸ ⁿᵃᵐᵉ ᶦˢ ᵃˡᵉˣ
++ ˢʰᵉ/ʰᵉʳ
+  
+  **ᴵ'ˡˡ ᶠᶦˣ ᵗʰᶦˢ ˡᵃᵗᵉʳ :)**
 <img
 src="https://i.ibb.co/fQkyXLF/Untitled120-20241023014232.png">
 </picture>
