@@ -7,7 +7,6 @@
 
   ᵈᶦˢᶜᵒʳᵈ: ".4l3x_0x"
   
-  @whatengel666 ʷʰᵃᵗ ᵈᶦᵈ ᶦ ᵈᵒ?...
 <img
 src="https://www.animatedimages.org/data/media/562/animated-line-image-0221.gif">
 </picture>
