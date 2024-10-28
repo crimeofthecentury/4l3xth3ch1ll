@@ -1,12 +1,3 @@
-**ᵂᵉˡᶜᵒᵐᵉ!!**
-- ᴹʸ ⁿᵃᵐᵉ ᶦˢ ᵃˡᵉˣ
-+ ˢʰᵉ/ʰᵉʳ
-  
-  (๑˃̵　ᴗ　˂̵)و
-  
-
-  ᵈᶦˢᶜᵒʳᵈ: ".4l3x_0x"
-  
 <img
 src="https://www.animatedimages.org/data/media/562/animated-line-image-0221.gif">
 </picture>
